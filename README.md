@@ -1,2 +1,1 @@
-# harriskore.github.io
-excellent and good experience A property listing website powered by GitHub Page
+Welcome to Harriskore your trusted global platform for property listings. Whether you're searching for your dream home, land for investment, or rental opportunities, Harriskore connects you with reliable listings from around the world. Our mission is simple: to make property advertising easy, accessible, and eff
